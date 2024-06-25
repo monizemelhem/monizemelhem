@@ -1,6 +1,6 @@
  👋 Hi, I’m @monizemelhem eu sou monize
-- 👀 I’m interested in ... em ninguem
-- 🌱I’m interested in ...em ninguem
+- 👀 I’m interested in ... em ninguém
+- 🌱I’m interested in ...em ninguém
 - 💞️ I’m looking to collaborate on ...a estudar
 - 📫 How to reach me ...na escola
 - 😄 Pronouns: ...nao
